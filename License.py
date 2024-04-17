@@ -3,4 +3,4 @@ from any telegramer
 
          License Price 
             2000rs
-License to U not Get Copyright and bot work super Fast
+License to U not Get Copyright and bot work super Fast❗️
