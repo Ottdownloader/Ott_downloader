@@ -37,4 +37,4 @@
   - Join [Telegram Channel](https://t.me/Super_botz) to get more Bots and their updates.
 
 ### LICENSE
-- Your Don't Have First Buy license 
+- ○Your Don't Have First Buy license 
